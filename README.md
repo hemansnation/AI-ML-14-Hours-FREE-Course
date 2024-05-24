@@ -1,2 +1,1 @@
-# 7-Day-AI-ML-Fundamentals-Workshop
-7 Day AI ML Fundamentals Workshop
+# AI/ML 14 Hours FREE Course🤖
